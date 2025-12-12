@@ -9,7 +9,7 @@
 
 - 📊 2024.09 - [키움증권](https://www3.kiwoom.com/h/main)
 
-- 📊 2025.12 - [농협중앙회]([https://www3.kiwoom.com/h/main](https://www.nonghyup.com/main/psniMain.do))
+- 📊 2025.12 - [농협중앙회](https://www.nonghyup.com/main/psniMain.do)
 
 <br>
 <br>
